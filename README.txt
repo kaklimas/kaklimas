@@ -1,1 +1,1 @@
-Posting here things that i made during my IT adventure.
+Posting here things that I made during my IT adventure.
